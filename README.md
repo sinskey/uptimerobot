@@ -1,1 +1,1 @@
-# uptime buat bot
+# agus ganteng
